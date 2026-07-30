@@ -14,6 +14,7 @@
 <p><b>HE/THEY  ⸝⸝  BISEXUAL <b><p>
 <p><b>USUALLY OFFTAB / AFK . <b><p>
 <p><b>C + H IS ENC ✦ W2I <b><p>
+<p><b>MULTISHIPPER <b><p>
   </p>
 <i>
   
