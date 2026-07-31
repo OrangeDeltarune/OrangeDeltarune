@@ -20,4 +20,4 @@
   
 [ata](https://orangedeltarune.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://cheskipp1ng.straw.page)
 
-[pt-hall-of-media](https://github.com/pt-hall-of-media)'s LookOut3D
+[pt-hall-of-media](https://github.com/pt-hall-of-media) , [pt-walk-of-fame](https://github.com/pt-walk-of-fame)'s LookOut3D
