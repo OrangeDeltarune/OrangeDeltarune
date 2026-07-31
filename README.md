@@ -12,8 +12,8 @@
 </p>
 
 <p><b>HE/THEY  ⸝⸝  BISEXUAL <b><p>
-<p><b>USUALLY OFFTAB / AFK . <b><p>
-<p><b>C + H IS ENC UNLESS STATED OTHERWISE (DNIUF/ID) ✦ W2I <b><p>
+<p><b>USUALLY OFFTAB / AFK  ✦ W2I  <b><p>
+<p><b>C + H IS ENC UNLESS STATED OTHERWISE ( e.g. DNIUF/ID )<b><p>
 <p><b>MULTISHIPPER <b><p>
   </p>
 <i>
