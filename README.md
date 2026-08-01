@@ -14,7 +14,7 @@
 <p><b>HE/THEY  ⸝⸝  BISEXUAL <b><p>
 <p><b>USUALLY OFFTAB / AFK  ✦ W2I  <b><p>
 <p><b>C + H IS ENC UNLESS STATED OTHERWISE ( e.g. DNIUF/ID )<b><p>
-<p><b>MULTISHIPPER <b><p>
+<p><b>LookOut3D x Verity Iwcuf <b><p>
   </p>
 <i>
   
