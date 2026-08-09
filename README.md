@@ -12,6 +12,6 @@
   </p>
 <i>
   
-[ata](https://orangedeltarune.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://cheskipp1ng.straw.page)
+[ata](https://orangedeltarune.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://look0ut3d.straw.page)
 
 [pt-hall-of-media](https://github.com/pt-hall-of-media) , [pt-walk-of-fame](https://github.com/pt-walk-of-fame) , [title-town](https://github.com/title-town)'s LookOut3D
