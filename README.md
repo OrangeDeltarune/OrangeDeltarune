@@ -9,7 +9,7 @@
 <p><i>usually offtab / afk  ✦  w2i  <i><p>
 <p><i>i enjoy being covered , i find it comforting .<i><p>
 <p><b>c + h is enc unless stated otherwise ( e.g. dniuf/id )<b><p>
-<p><b>ships iwec . <b><p>
+<p><b>fandom and ships iwec . <b><p>
   </p>
 <i>
   
