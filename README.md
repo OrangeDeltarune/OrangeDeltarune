@@ -8,8 +8,7 @@
 <p><i>he / they  ⸝⸝  bisexual<i><p>
 <p><i>usually offtab / afk  ✦  w2i  <i><p>
 <p><i>i enjoy being covered , i find it comforting .<i><p>
-<p><b>c + h is enc unless stated otherwise<b><p>
-<p><b>i apologize if i come off as rude . <b><p>
+<p><i>i apologize if i come off as rude . <i><p>
   </p>
 <i>
   
