@@ -1,15 +1,15 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=yellowdeltarune&color=orange&style=for-the-badge&label=Blunts)
+![](https://komarev.com/ghpvc/?username=yellowdeltarune&color=ff69b4&style=plastic&label=worms)
   <div align="center">
 <p>
-<img width="420" height="250" alt="Untitled544_20260805235820" src="https://github.com/user-attachments/assets/ef4900fa-0f57-4638-bc52-3af4c17afc44" />
+  <img width="390" height="305" alt="Untitled560_20260819205154" src="https://github.com/user-attachments/assets/a292485b-8f51-4df4-8411-95ae8afe7025" />
 </p>
 <p><i>he / they  ⸝⸝  bisexual<i><p>
 <p><i>usually offtab / afk  ✦  w2i  <i><p>
 <p><i>i enjoy being covered , i find it comforting .<i><p>
-<p><b>c + h is enc unless stated otherwise ( e.g. dniuf/id )<b><p>
-<p><b>fandoms and ships iwec . <b><p>
+<p><b>c + h is enc unless stated otherwise<b><p>
+<p><b>i apologize if i come off as rude . <b><p>
   </p>
 <i>
   
