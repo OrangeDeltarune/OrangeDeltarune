@@ -16,5 +16,5 @@
 [ata](https://orangedeltarune.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://look0ut3d.straw.page)
 
 [pt-hall-of-media](https://github.com/pt-hall-of-media) , [pt-walk-of-fame](https://github.com/pt-walk-of-fame) , [title-town](https://github.com/title-town)'s LookOut3D
-<p><B>I DON'T SUPPORT LOOKOUT UNTIL HE ADDRESSES WHAT HE SAID WAS WRONG . FOR NOW, DON'T REFER TO ME AS PT'S LOOKOUT BECAUSE I AM CHANGING MY CHARACTER . THANK YOU !<B><p>
+<p><B>I DON'T SUPPORT LOOKOUT UNTIL HE ADDRESSES WHAT HE DID WAS WRONG . FOR NOW, DON'T REFER TO ME AS PT'S LOOKOUT BECAUSE I AM CHANGING MY CHARACTER . THANK YOU !<B><p>
 
