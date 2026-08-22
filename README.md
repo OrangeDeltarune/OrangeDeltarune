@@ -15,6 +15,11 @@
   
 [ata](https://orangedeltarune.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://look0ut3d.straw.page)
 
-[pt-hall-of-media](https://github.com/pt-hall-of-media) , [pt-walk-of-fame](https://github.com/pt-walk-of-fame) , [title-town](https://github.com/title-town)'s LookOut3D
-<p><B>I DON'T SUPPORT LOOKOUT UNTIL HE ADDRESSES WHAT HE DID WAS WRONG . FOR NOW, DON'T REFER TO ME AS PT'S LOOKOUT BECAUSE I AM CHANGING MY CHARACTER . THANK YOU !<B><p>
+  
+<img width="300" height="192" alt="Screenshot 2026-08-22 at 4 12 26 PM" src="https://github.com/user-attachments/assets/09365dca-70bc-41ad-b321-77aee7e54f8c" />
+<p><B>I feel this should go here instead of my response page . The first tiktok provided is by a ranter and their view of a video lookout posted back in 2025, which includes a private island build that represents epsteins island . The second is by lookout HIMSELF stating how tiktok is worse than epstein .<B><p>
+  
+[tiktok with proof](https://www.tiktok.com/t/ZTDH6jD8p/) ⸝⸝ [lookout's tiktok](https://www.tiktok.com/t/ZTDHMKLc4/)
+
+<p><B>I DON'T SUPPORT LOOKOUT UNTIL HE ADDRESSES WHAT HE POSTED WAS WRONG . FOR NOW, DON'T REFER TO ME AS PT'S LOOKOUT BECAUSE I AM CHANGING MY CHARACTER . THANK YOU !<B><p>
 
