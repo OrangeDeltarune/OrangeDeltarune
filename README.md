@@ -1,6 +1,6 @@
 <div align="center"> 
 
-![](https://komarev.com/ghpvc/?username=yellowdeltarune&color=ff69b4&style=plastic&label=worms)
+![](https://komarev.com/ghpvc/?username=yellowdeltarune&color=7f1734&style=plastic&label=wine+bottles)
   <div align="center">
 <p>
   <img width="390" height="305" alt="Untitled560_20260819205154" src="https://github.com/user-attachments/assets/a292485b-8f51-4df4-8411-95ae8afe7025" />
@@ -10,11 +10,11 @@
 <p><i>i enjoy being covered , i find it comforting . just not completely .<i><p>
 <p><i>green and white are hvycomf characters of mine .<i><p>
 <p><i>i apologize if i come off as rude . <i><p>
-  </p>
+</p>
 <i>
   
 [ata](https://orangedeltarune.atabook.org) ⸝⸝ ⧽ ⸝⸝ [straw](https://look0ut3d.straw.page)
 
 [pt-hall-of-media](https://github.com/pt-hall-of-media) , [pt-walk-of-fame](https://github.com/pt-walk-of-fame) , [title-town](https://github.com/title-town)'s LookOut3D
-<p><B>I DO NOT SUPPORT LOOKOUT . I DO NOT WANT TO BE CONSIDERED AS PT'S LOOKOUT UNTIL I GET SWITCHED .<B><p>
+<p><B>I DON'T SUPPORT LOOKOUT UNTIL HE ADDRESSES WHAT HE SAID WAS WRONG . FOR NOW, DON'T REFER TO ME AS PT'S LOOKOUT BECAUSE I AM CHANGING MY CHARACTER . THANK YOU !<B><p>
 
