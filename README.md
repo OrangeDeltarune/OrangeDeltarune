@@ -17,7 +17,7 @@
 
   
 <img width="300" height="192" alt="Screenshot 2026-08-22 at 4 12 26 PM" src="https://github.com/user-attachments/assets/09365dca-70bc-41ad-b321-77aee7e54f8c" />
-<p><B>I feel this should go here instead of my response page . The first tiktok provided is by a ranter and their view of a video lookout posted back in 2025, which includes a private island build that represents epsteins island . The second is by lookout HIMSELF stating how tiktok is worse than epstein .<B><p>
+<p><B>I feel this should go here instead of my response page . The first tiktok provided is by a ranter and their view of a video lookout posted back in 2025, which includes a private island build that represents epsteins island . The second is by lookout HIMSELF stating how tiktok is worse than epstein . Even though Lookout is known for his dark humor, I personally think he went too far with it .<B><p>
   
 [tiktok with proof](https://www.tiktok.com/t/ZTDH6jD8p/) ⸝⸝ [lookout's tiktok](https://www.tiktok.com/t/ZTDHMKLc4/)
 
