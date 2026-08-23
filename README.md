@@ -7,7 +7,7 @@
 </p>
 <p><i>he / they  ⸝⸝  bisexual<i><p>
 <p><i>usually offtab / afk  ✦  w2i  <i><p>
-<p><i>i enjoy being covered , i find it comforting . just not completely .<i><p>
+<p><i>please do not cover me unless you are my friend .<i><p>
 <p><i>green and white are hvycomf characters of mine .<i><p>
 <p><i>i apologize if i come off as rude . <i><p>
 </p>
