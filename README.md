@@ -2,8 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=yellowdeltarune&color=7f1734&style=plastic&label=wine+bottles)
   <div align="center">
-<p><i>i'd appreciate it if these weren't used unless u have my permission !<i><p>
-<p><i>i made these and my lookout x verity one is currently being used w/out any credits :-( <i><p>
+<p>
   <img width="390" height="305" alt="Untitled560_20260819205154" src="https://github.com/user-attachments/assets/a292485b-8f51-4df4-8411-95ae8afe7025" />
 </p>
     
