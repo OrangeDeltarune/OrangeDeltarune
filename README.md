@@ -9,7 +9,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cedarville+Cursive&size=25&duration=4950&pause=450&color=BCB4DD&width=500&height=40&lines=I+get+that+a+lot+%2C+because+I'm+on+TV+a+lot+!+;Probably+because+of+all+my+hard+work.)](https://git.io/typing-svg)
 <p><i>he / they  ⸝⸝  bisexual<i><p>
 <p><i>usually offtab / afk  ✦  w2i  <i><p>
-<p><i>green and white are hvycomf characters of mine .<i><p>
+<p><i>selective sharing green AUS yume , i love my green bean . <3<i><p>
 <p><i>i apologize if i come off as rude . <i><p>
 <i>
   
