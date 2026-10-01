@@ -20,7 +20,7 @@
   <details>
     <summary>BYI</summary>  
     <p>$\color{#c7f3f3}{\textsf{i am short tempered , iwvec}}$</p>
-    <p>$\color{#8cbcda}{\textsf{if i don't respond , please don't take it in a personally .}}$</p>
+    <p>$\color{#8cbcda}{\textsf{if i don't respond , please don't take it personally .}}$</p>
     <p>$\color{#569cca}{\textsf{not really doing mentally well , just a heads up , iayor .}}$</p>
     <p>$\color{#3371b7}{\textsf{mostly nonsharing with my yumes .}}$</p>
 
