@@ -1,6 +1,6 @@
 <div align="center"> 
 
-  <img src="https://komarev.com/ghpvc/?username=yellowdeltarune&color=7bdcf4&style=for-the-badge&label=snowflakes" alt="snowflakes" />
+![](https://komarev.com/ghpvc/?username=yellowdeltarune&color=7bdcf4&style=for-the-badge&label=snowflakes)
 
   <br />
   <img align="center" width="560" src="https://github.com/user-attachments/assets/6c269b14-d942-4c62-95b7-e6af72539084" style="margin-right: 15px;" />
